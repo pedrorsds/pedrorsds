@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...academia
 - 📫 How to reach me: ... zap
 - 😄 Pronouns: ... ele 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... muita
